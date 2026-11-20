@@ -1,0 +1,1 @@
+This is a online platform where an formal employee of an organisation can post their reason why they left that company. Everyone is looking for the answer for Why join this or that company but none asks why anyone left this company if things are good as they are telling us.
